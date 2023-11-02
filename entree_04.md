@@ -9,7 +9,7 @@ Un concepteur-idéateur s'occupe du concept de base du produit ,le schéma de ba
 Un testeur de jeux vidéos il test des jeux pour retrouvers des bogues et la jouabilité du jeu. Il doit suivre un protocole pour retrouver et voir si le jeu fonctionne bien.Il doit faire part de ces rapport au développeurs.Il fait des tests su différentes plateformes. Un testeur de jeux vidéos doit être autonome, être capable de travailler sous pression, avoir un esprit critique, un sens de l'observation, de l'engagement, être bilingue et avoir de la patience. Il doit une passion pour les jeux vidéos .Lest testeurs peuvent travailler dans une entreprise de développement  ou chez eux , ayant le matériel nécessaire. Ce que j'aime de ce métier c'est que je pourrait essayer des nouveaux jeux, j'adore jouer des jeux vidéos, donc sa ne serait pas comme un travail pour moi. Ce qui m'intéresse le moins c'est remplir des rapport des erreurs dans le jeux.
 
 ### Emploi 3 - scénariste de jeux vidéos
-Il s'occupe de l'histoire du jeu. Il doit écrire les scénario, l'histoire du jeu et les dialogues entre les personnages.
+Il s'occupe de l'histoire du jeu. Il s'occupe d'écrire les scénario, l'histoire du jeu , les dialogues entre les personnages, créer des personnage et s'occupe du décor. Il doit prévoir aussi toute variations qui peut arriver dans le jeu, comme les déplacements du personnage. Un scénariste doit être capable de travailler seul et en équipe. Il doit être également créative et avoir un sens créative.
 
 ### Emploi 4 - Chargé de projet
 4 à 5 lignes
