@@ -2,7 +2,7 @@
 ## Plan de carrière
 
 ### Présentation
-Parlez de vous. 
+Je suis quelqu'un qui est passionnné par les jeux vidéos et l'art en général. Je suis très perfectionniste lorsque je doit faire des projects qui me tiennent à coeur.
 
 ### Intérêts dans le domaine
 Parlez de vos intérêts en multimédia. 
