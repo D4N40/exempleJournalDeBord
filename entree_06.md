@@ -6,7 +6,6 @@ L’objectif de cet exercice est de développer une opinion sur une œuvre multi
 Entre 300 et 400 mots. 
 
 ### Description
-Décrivez l'oeuvre. Quelles étaient les composantes de l'installation? Comment était-elle réalisée techniquement? 
 L'escape room était composé de 4 salles; la premières était dans un métro, la deuxième était une station abandonné, la toisième était une salle de ventilation et la quatrième était où il y avait des anciennes rails et une bombe. Dans chaque salles, il fallait résoudre les casse-tête pour passer à l'autre salle. Il y avait une musique d'ambiance dans chaque salle qui nous aider à bien rentre dans le jeu. La musique d'ambiance était projeter par des haut-parleurs qui était sur les salle où nous on était. Il y avait aussi les lumières qui était en hauts des salle. Dans chaque salle, il y avait un speaker qui fesait des sons qui fesait rapport à la salle, par exemple dans le métro on entendait le métro qui avancer ou dans la salle de ventilation on entendait le son des souris même si les souris n'était pas réel et le son  des ventilations d'air chaud. 
 
 ### Opinion 
