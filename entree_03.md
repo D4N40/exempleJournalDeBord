@@ -5,7 +5,7 @@
 Je suis quelqu'un qui est passionnné par les jeux vidéos et l'art en général,comme la musique, la peinture, la danse, etc. Je suis très perfectionniste lorsque je doit faire des projects qui me tiennent à coeur. 
 
 ### Intérêts dans le domaine
-Dans les multimédias, je m'intèresse beaucoup à la production
+Dans les multimédias, je m'intèresse beaucoup à la production sonore, à la photographie et à la production/conception du multimédias. J'aime beaucoup prendre des phtos de gens , ressortir leur beauté. J'adore aussi beaucoup la musique , parce que c'est une façon d'exprimer des sentiments qui ne sont pas facil à exprimer verbalement. J'aime les produits du multimédias, parce qu'Il nous amène à découvrir des réalités qu'on ne connaissait pas.
 
 ### Emplois qui vous intéressent
 Les deux emplois qui m'intèresse le plus c'est concepteur-idéateur et testeur de jeux vidéos. J'aimerais être concepteur-idéateur puisque j'ai beaucoup de créativité et puisque j'ai déjà plusieurs d'idée de jeux vidéo. Aussi, j'aimerais être testeur de jeux vidéos, parce que j'aime beaucoup jouer aux jeux vidéos et sa ne serait pas trop un travail pour moi sa serait plûtot du divertissement.
