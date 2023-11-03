@@ -14,4 +14,4 @@ J'ai aimer aller à l'escape room, parce que la musique d'ambiance nous menait a
 
 ### Analyse critique
 Qu'est-ce qui pourrait être modifié dans cette oeuvre?
-
+Lors de l'escapem game, on arriver pas a bien entendre la voix qui nous parler dans le talkie-walkie
