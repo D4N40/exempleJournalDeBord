@@ -19,6 +19,6 @@ L'oeuvre *Mona Lisa* , qui est présenter en realité virtuel, me captive pusiqu
 L'oeuvre *Van Gogh* m'interpelle puisque c'est une exposition qui nous émergent dans des peintures et nous racontent leur histoire. Rentrer dans des peinture ou esquisses et nous faire vivre des émotion est un aspect dont j'aimerais essayer des multimédias.
 
 ### [Poratl 2](https://store.steampowered.com/app/620/Portal_2/)
-Le jeux *Portal 2* est un jeu qui m'intéresse puisque c'est un jeu de réflexion sur une réalité probable.
+Le jeux *Portal 2* est un jeu qui m'intéresse puisque c'est un jeu de réflexion sur une réalité probable. Il nous montre un monde où la technologie est tellement avancé que ce sont les robots qui domine le monde.Mettre le joueur, personnage principale, en réflexion et en action par un jeu vidéo est un aspect du multimédia qui m'intéresse le plus.
  
 
