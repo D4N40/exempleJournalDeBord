@@ -12,9 +12,9 @@ Les deux emplois qui m'intèresse le plus c'est concepteur-idéateur et testeur 
 
 ### Identification
 Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
-
+J'ai choisi l'entreprise Valve 
 ### Dans 5 ans
 Où vous voyez-vous dans 5 ans? 
 
 ### Projets
-J'aimerais un pour créer une série jeux vidéos qui  psychologique et qui raconte une histoire. J'aimerais que chaque jeu de cette série porte sur un trouble psychologique, par exemple anorexie, dépression, trouble de la personalité, ect. Chaque épisode porterais sur une histoire différentes avec des personnages différents, sa serait meilleur si c'est porter sur des faits réels. J'aimerais aussi créer des jeux différents qui se connecte d'un certaine façon.
+J'aimerais un pour créer une série jeux vidéos qui  psychologique et qui raconte une histoire. J'aimerais que chaque jeu de cette série porte sur un trouble psychologique, par exemple anorexie, dépression, trouble de la personalité, etc. Chaque épisode porterais sur une histoire différentes avec des personnages différents, sa serait meilleur si c'est porter sur des faits réels. J'aimerais aussi créer des jeux différents qui se connecte d'un certaine façon.
