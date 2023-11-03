@@ -19,6 +19,6 @@ L'oeuvre *Mona Lisa* , qui est présenter en realité virtuel, me captive pusiqu
 L'oeuvre *Van Gogh* m'interpelle puisque c'est une exposition qui nous émergent dans des peintures et nous racontent leur histoire. Rentrer dans des peinture ou esquisses et nous faire vivre des émotion est un aspect dont j'aimerais essayer des multimédias.
 
 ### [Poratl 2](https://store.steampowered.com/app/620/Portal_2/)
-Le jeux *Portal 2* 
+Le jeux *Portal 2* est un jeu qui m'intéresse puisque c'est un jeu de réflexion sur une réalité probable.
  
 
