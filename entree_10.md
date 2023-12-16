@@ -25,7 +25,7 @@ Quelle présentation avez-vous préféré et pourquoi?
 ### Entre le cours 1 et aujourd'hui, quelles découvertes as-tu faites sur le domaine du multimédia? 
 
 ### As-tu découvert un nouveau métier qui pourrait t'intéresser? 
-J'ai en effet découvert des nouveaux emplois très intéressant, mais mes préférences restent les mêmes ( testeur de jeux vidéos,conceptrice, concepteur sonore).
+J'ai en effet découvert des nouveaux emplois très intéressant. Mes préférences restent les mêmes ( testeur de jeux vidéos,conceptrice, concepteur sonore), mais je me suis intéresser davantage dans la photographie.
 ### As-tu découvert un nouvel artiste qui t'a inspiré? 
 
 ### Pour quel type d'entreprise préférerais-tu travailler? 
