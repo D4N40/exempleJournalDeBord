@@ -8,13 +8,13 @@
 2 points
 
 ### Gestion du temps
-bien géré le temps?
+Notre gestion du temps n'étais pas très bonne dû aux nombreaux project et dû au stress. De plus , que j'ai passai un mauvais moment dû à des problèmes personelles qui ont affectés ma productivité et la qualité des travaux.
 
 ### Outils et ressources
-Quels outils et ressources avez-vous utilisés pour la préparation de votre présentation?
+Ont a utilisé PowerPoint pour faire notre présentation oarel et utilisé des sources de Teams sur le canal de la classe pour pouvoir complété la présentation avec les informations nécéssaire.
 
 ### Difficultés
-Quelles sont les difficultés que vous avez rencontrées pendant la présentation?
+Notre plus grande difficulté c'était de mettre les informations qui était demandé dans la présentation orale, on doutait des informations qui était pertinentes/requises a mettre dans la présentation.
 
 ### Présentation préférée
 Quelle présentation avez-vous préféré et pourquoi?
